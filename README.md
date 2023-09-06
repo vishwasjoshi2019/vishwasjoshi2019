@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **vishwasjoshi2019@gmail.com**
 
-- 📄 Know about my experiences [https://bit.ly/3PrRk4r)
+- 📄 Know about my experiences [https://bit.ly/3PrRk4r]
 
 - ⚡ Fun fact:- **I've found a unique balance between coding and sculpting my body – while I craft elegant lines of code during the day, I enjoy sculpting elegant lines of muscle at the gym in the evenings. 💻💪🏋️‍♀️**
 
